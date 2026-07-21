@@ -1,0 +1,1 @@
+# smartKhata-privacy-policy
